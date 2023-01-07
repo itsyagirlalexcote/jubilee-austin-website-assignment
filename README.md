@@ -1,5 +1,3 @@
 # Jubilee-austin-website-assignment
   
-   
-   
  
